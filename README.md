@@ -1,2 +1,2 @@
-Hello. I'm Adam and I'm learning how to learn
+I'm Adam and I'm trying to learn stuff
 
