@@ -1,2 +1,1 @@
-first name Christian but go by Adam
-just trying to learn stuff
+I'm Adam and I'm just trying to learn cool stuff
